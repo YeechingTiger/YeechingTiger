@@ -4,4 +4,4 @@ Health informatician at **Indiana University School of Medicine** and the **Rege
 
 **Recruiting** postdocs, PhD students, research engineers, and interns → [yeechingtiger.github.io](https://yeechingtiger.github.io/#join)
 
-hexing@iu.edu · [ORCID](https://orcid.org/0000-0003-0290-8058)
+hexing@iu.edu · [Google Scholar](https://scholar.google.com/citations?user=LN0Utm0AAAAJ&hl=en) · [ORCID](https://orcid.org/0000-0003-0290-8058)
